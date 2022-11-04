@@ -3,6 +3,8 @@
 </p>
 <h1 align="center">Maxxy-Botz</h1>
 
+# NYARI APAAA KAMU?😂🤣🤣🤣 AMIRUL AJG
+
 ## Note!! Scan Pake Script Md Yang Lain Buat Dapetin SessionNya 
 
 
